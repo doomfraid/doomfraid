@@ -6,4 +6,4 @@ i reeeally really like eddsworld homestuck mlp deltarune/undertale soul eater an
 
 I’m quite fond of twilight sparkle aradia megido rose lalonde and matt eddsworld 
 
-<img width="300" height="320" alt="image" src="https://static.wikia.nocookie.net/mspaintadventures/images/7/7a/Rose_seething_in_pillow.gif/revision/latest?cb=20200313230039" />
+<img width="320" height="320" alt="image" src="https://static.wikia.nocookie.net/mspaintadventures/images/7/7a/Rose_seething_in_pillow.gif/revision/latest?cb=20200313230039" />
