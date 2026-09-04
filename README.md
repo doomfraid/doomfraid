@@ -6,4 +6,8 @@ i reeeally really like eddsworld homestuck mlp deltarune/undertale soul eater an
 
 I’m quite fond of twilight sparkle aradia megido rose lalonde and matt eddsworld 
 
+whisper 2 int since im mostly offtab...pleaseplease talk or interact with me!!!i need friends :)
+c+h ALWAYS!!! i dont care who u are 
+im verrryyy anxious :( plz be patient when talking 2 me
+
 <img width="320" height="320" alt="image" src="https://static.wikia.nocookie.net/mspaintadventures/images/7/7a/Rose_seething_in_pillow.gif/revision/latest?cb=20200313230039" />
