@@ -5,4 +5,4 @@ hello there, im ipek/riri im a minor nd im turkish, check strawpage fur more inf
 
 <img width="320" height="320" alt="image" src="https://static.wikia.nocookie.net/mspaintadventures/images/7/7a/Rose_seething_in_pillow.gif/revision/latest?cb=20200313230039" />
 
-also can you guys nominate me as pnytowns rose lalonde ok thanks
+also can you guys nominate me as ponytowns rose lalonde ok thanks
