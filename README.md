@@ -1,6 +1,6 @@
 hello there, im ipek/riri im a minor nd im turkish, check strawpage or pronounspage fur more info
-
-<img width="70" height="45" alt="image" src="https://github.com/user-attachments/assets/4dda6720-006c-4446-b484-0b468367d3a8" /> <img width="70" height="45" alt="image" src="https://github.com/user-attachments/assets/589bb28f-c082-4251-99e3-6d41bd3114f3" />
-
-<img width="600" height="338" alt="tumblr_ongt9geJqw1r08scoo2_540 (1)" src="https://github.com/user-attachments/assets/c2b1b5f7-dd24-46fc-83e1-e108616d8414" />
-
+<p align="left">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31x7rhhbat6yd6ktu75pred2ckxi&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31x7rhhbat6yd6ktu75pred2ckxi&cover_image=true&theme=novatorem&show_offline=false&background_color=616161&interchange=false&profanity=false&hide_remaster=false&bar_color=aa559e&bar_color_cover=true">
+  </a>
+</p>
