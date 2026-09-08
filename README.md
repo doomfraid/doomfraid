@@ -5,4 +5,4 @@ hello there, im ipek/riri im a minor nd im turkish, check strawpage or pronounsp
   </a>
 </p>
 
- [straw](https://heartfraid.straw.page)   ✫   ݄ [prnspage](https://en.pronouns.page/@soporslime)   ✫   [atabook](https://heartfraid.atabook.org/)
+ [straw](https://heartfraid.straw.page)   ✫   ݄[prnspage](https://en.pronouns.page/@soporslime)   ✫   [atabook](https://heartfraid.atabook.org/)
