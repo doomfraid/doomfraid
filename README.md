@@ -19,6 +19,3 @@ $${\color{#FFFFFF} u \ might \ wanna \ check \ out \ the \ links \ down \ below 
     <a href="https://en.pronouns.page/@soporslime">prnspage</a>  ★
     <a href="https://heartfraid.atabook.org/">atabook</a>
 </p>
-  <p align="center">
-<img width="88" height="46" alt="tumblr_50a90a661a4b56ea0e5fce89aeb0d7a2_5b1703bb_100" src="https://github.com/user-attachments/assets/3792ab3a-f15b-4c6a-bab6-82d0233a5581" />
-</p>
