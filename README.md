@@ -10,6 +10,6 @@
 </p>  
 
   <p align="center">
-    <a href="https://heartfraid.straw.page">straw</a>  ★
+    <a href="https://dyingwithdecentmusic.straw.page">straw</a>  ★
     <a href="https://en.pronouns.page/@soporslime">prnspage</a>  ★
     <a href="https://heartfraid.atabook.org/">atabook</a>  
