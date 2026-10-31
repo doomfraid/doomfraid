@@ -11,5 +11,5 @@
 
   <p align="center">
     <a href="https://dyingwithdecentmusic.straw.page">straw</a>  ★
-    <a href="https://en.pronouns.page/@soporslime">prnspage</a>  ★
+    <a href="https://pronouns.cc/@risquared">prnscc</a>  ★
     <a href="https://heartfraid.atabook.org/">atabook</a>  
